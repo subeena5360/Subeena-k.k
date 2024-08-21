@@ -1,6 +1,6 @@
 Hi, I’m @subeena k.k
 
-👀 I’m interested in working with data analytics and data science
+👀 I’m interested in data analytics and data science
 
 🎓 I have completed my Master's in Mathematics and Statistics
 
